@@ -1,4 +1,4 @@
-- 🔭 I’m currently working on my self-esteem!
+- 🔭 I’m currently working on my Self-awareness!
 
 <!--
 ### Hi there 👋
