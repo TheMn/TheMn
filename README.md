@@ -1,4 +1,4 @@
-- 🔭 I’m currently working on my Self-awareness!
+- 🔭 Linear algebra is currently on my to-do list.
 
 <!--
 ### Hi there 👋
